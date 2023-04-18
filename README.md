@@ -7,8 +7,8 @@ Sanjay Rahul (Team Lead) - https://g.dev/Sanjayrahul
 
 Vishnu - https://g.dev/Vishnu0
 
-sakthi - https://g.dev/Sakthivel0
+Sakthi Vel - https://g.dev/Sakthivel0
 
-sam ambram - https://g.dev/SamAbraham
+Sam Abraham - https://g.dev/SamAbraham
 
-vedio Demonstration link
+Vedio Demonstration link
